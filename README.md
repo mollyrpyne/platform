@@ -6,6 +6,7 @@
   Atomic Habits: An Easy & Proven Way to Build Good Habits & Break Bad Ones is a self-help book by James Clear, published in 2018. The book has been translated into more than 40 languages and has sold over 5 million copies worldwide.
 
 In Atomic Habits, Clear argues that small changes can lead to big results over time. He calls these small changes "atomic habits." He also provides a framework for building good habits and breaking bad ones.
+<a href="https://amzn.to/3Q9lVVN">Ckeck On Amazon</a>
 
 Clear's framework is based on four laws of behavior change:
 
