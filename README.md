@@ -6,6 +6,7 @@
   Atomic Habits: An Easy & Proven Way to Build Good Habits & Break Bad Ones is a self-help book by James Clear, published in 2018. The book has been translated into more than 40 languages and has sold over 5 million copies worldwide.
 
 In Atomic Habits, Clear argues that small changes can lead to big results over time. He calls these small changes "atomic habits." He also provides a framework for building good habits and breaking bad ones.
+
 <a href="https://amzn.to/3Q9lVVN">Ckeck On Amazon</a>
 
 Clear's framework is based on four laws of behavior change:
@@ -36,6 +37,9 @@ You can use these laws to create new habits and break old ones.
 Atomic Habits is a great book for anyone who wants to make lasting changes in their life. It is full of practical advice that you can implement immediately.
 </p>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1cuxg1YluOk?si=F0fCcVKoDuKI0-TI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<a href="https://amzn.to/3Q9lVVN">Ckeck On Amazon</a>
+
 <p>
   Atomic Habits is a self-help book by James Clear that teaches readers how to build good habits and break bad ones. The book is based on the premise that small, incremental changes can lead to big results over time.
 
@@ -60,6 +64,7 @@ Make it easy. If you want to meditate every day, download a meditation app and s
 Make it satisfying. After you finish a workout, reward yourself with a healthy snack or a relaxing activity. After you save a certain amount of money, treat yourself to something you've been wanting.
 By following these simple tips, you can start making small changes that will lead to big results over time.
 </p>
+<a href="https://amzn.to/3Q9lVVN">Ckeck On Amazon</a>
 <p>
   
 Atomic Habits is a self-help book by James Clear that teaches readers how to build good habits and break bad ones. The book is based on the premise that small, incremental changes can lead to big results over time.
@@ -84,6 +89,7 @@ Be consistent. The key to habit change is consistency. Even if you can only do a
 Don't beat yourself up if you slip up. Everyone slips up from time to time. The important thing is to pick yourself up and keep going.
 Remember, habit change takes time and effort. But if you are consistent, you can make lasting changes in your life.
 </p>
+<a href="https://amzn.to/3Q9lVVN">Ckeck On Amazon</a>
 <p>
   Yes, Atomic Habits: An Easy & Proven Way to Build Good Habits & Break Bad Ones is a bestseller on Amazon. It has been ranked #1 in the Self-Help category for over 300 weeks. It has also been translated into over 40 languages and has sold over 5 million copies worldwide.
 
